@@ -1,1 +1,1 @@
-kupaguwno
+dupa obsrana
