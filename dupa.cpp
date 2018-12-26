@@ -1,1 +1,19 @@
-dupa obsrana
+asjjsfdjhsdf
+friendas
+gotodsa
+
+__STDCPP_DEFAULT_NEW_ALIGNMENT__as
+fsd
+alignassdfsdaf
+asdf
+transaction_safe_dynamicdfas
+ds
+a
+_USE_DECLSPECS_FOR_SALfds
+default
+__GCC_ATOMIC_TEST_AND_SET_TRUEVALf
+transaction_safe_dynamicafsd
+
+asmsfa
+asm
+falsedsa
